@@ -1,0 +1,1 @@
+Olá, meu nome é Thayla sou graduada em Licenciatura em computação pelo IF Sul de Minas. Atuo como suporte técnico para um sistema contábil, mas também possuo experiência com treinamento de clientes para utilização do sistema, implantação e a realização de plantões. Sou uma pessoa que gosto muito de aprender continuamente, sou dedicada e focada nos objetivos.
